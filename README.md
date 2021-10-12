@@ -7,3 +7,8 @@
 ![Captura3](https://user-images.githubusercontent.com/90356676/136093517-c42a89ce-fd17-474e-b1bd-a010ac8b2857.PNG)
 ![Captura4](https://user-images.githubusercontent.com/90356676/136093621-e666ec22-91b9-4fd6-b254-ddef8de6da6e.PNG)
 ![Captura5](https://user-images.githubusercontent.com/90356676/136093636-8f4df5ee-1994-493e-ad48-314fbd24daa1.PNG)
+# Contact
+Visit [my online CV](https://carlosbrito28.github.io).
+You can reach me on [linkdIn](https://www.linkedin.com/in/carlos-brito-moya-6420a0219/), or email at cdbm342@gmail.com
+
+
